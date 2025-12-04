@@ -89,7 +89,8 @@ Output Waveform
 
 
 Tabulation
-![WhatsApp Image 2025-11-27 at 2 27 12 PM](https://github.com/user-attachments/assets/a37b9ef9-df59-4db7-bb20-928fbc1a9b89)
+![WhatsApp Image 2025-12-04 at 12 00 30 PM](https://github.com/user-attachments/assets/107f0869-2c05-4ed9-9017-edc3ee9b2d29)
+
 
 
 
